@@ -10,11 +10,15 @@
 5. Girl - Puberty
 6. Avani Avattam
 7. Thavasam
+8. Griha Pravesham
 
 ## Pregnant woman - Udhaka Shanthi
 
 1. Participants in the function - Husband of pregnant woman, parents from both families, sisters/brothers from both families, extended family, friends, elders
 2. Function timings
+3. Duties of the husband -
+4. Duties of the girls' parents -
+5. Duties of the boy's parents -
 
 ## Baby birth - Punyavachanam
 
@@ -27,6 +31,8 @@
 ## Avani Avattam
 
 ## Thavasam
+
+## Griha Pravesham
 
 You can use the [editor on GitHub](https://github.com/tamiliyer/tamil-iyer-rituals-customs/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
