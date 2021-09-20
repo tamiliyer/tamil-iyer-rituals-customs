@@ -38,7 +38,7 @@
 3. Timings of the function
 4. Expected duties from the participants in the function
 
-## Pregnant woman - Udhaka Shanthi
+## Pregnant woman - Udhaka Shanthi (this section needs to be filled)
 
 1. Participants in the function - Husband of pregnant woman, parents from both families, sisters/brothers from both families, extended family, friends, elders
 2. Function timings
@@ -46,11 +46,11 @@
 4. Duties of the girls' parents -
 5. Duties of the boy's parents -
 
-## Baby birth - Punyavachanam
+## Baby birth - Punyavachanam (this section needs to be filled)
 
-## Boy - Upanayanam
+## Boy - Upanayanam (this section needs to be filled)
 
-## Marriage
+## Marriage (this section needs to be filled)
 
 ### NICHAYATHARTHAM
 
@@ -130,13 +130,13 @@ An after-wedding ritual, Nalangu is a fun activity done majorly to help the brid
 
 [Source](https://www.1plus1studio.com/tambrahm-wedding-guide)
 
-## Girl - Puberty
+## Girl - Puberty (this section needs to be filled)
 
-## Avani Avattam
+## Avani Avattam (this section needs to be filled)
 
-## Thavasam
+## Thavasam (this section needs to be filled)
 
-## Griha Pravesham
+## Griha Pravesham (this section needs to be filled)
 
 ## Karadayan nonbu
 
