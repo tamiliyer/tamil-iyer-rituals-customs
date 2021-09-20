@@ -419,11 +419,59 @@ Lyrics in Tamil is below Sanskrit lyrics.
 
 
 
+
+### How did Tamil Month Names originate?
+
+![image](https://user-images.githubusercontent.com/91045763/133998814-72227501-dd23-47ce-9548-c7a8050fd89a.png)
+
+
+(Based on a write up in Kumudam Bhakthi  )
+
+Most of us know  in the solar calendar  that we follow,
+The month is named after  the rasi in which  sun is there that month,
+But  most of us are unable  to understand , the tamil names of these months.
+And  here   is an attempt   to explain, why those names are given,
+
+All of us who follow solar months   know that  full moon ,
+Of each of those  months  fall on a particular star  ony.
+The  full mon of the chithirai month   always  falls,
+On the  chithirai(chithra)   star and the month is called Chithirai.
+
+IN the vaikasi month   the full moon falls   on the  VIsaka star,
+And so it is called Vaisakam and in spoken language Vaikasi,
+In the month  of Aani  , the full moon falls on Anusha(anuradha) star,
+And month  is called  as Aani after   the star Anuradha.
+
+IN the month of AAdi , the full moon falls on  poorada  star,
+Which is called as Poorva Ashada and the month is called ashada or Aadi,
+In the month of AAvani the  full moon  falls  on SRavana  star,
+Called as thiruonam in tamil    and the month  got its name from that.
+
+In the month  of Purattasi, the  full moon falls on Uthraatathi,
+Which is called Uthra Proshta padam  and the name comes  from Protta,
+In the month of Aypaasi , the full moon comes on Asvathi star,
+Which is Sanskrit is called  asupathi   and asupathi month became Ayppasi.
+
+The full moon day of Kathigai month is on Karthiga star and it is named  after it,
+In the Margazhi month , the full moon day is on Makeeram  , called  ,
+As Marga  seershe in Sanskrit    and the name  obviously came from  it,
+And in Thai moth full moon is on Thykshyam star , known as pushyam or poosam in Tamil.
+
+IN the maasi month full moon comes on Makam star  , which is called,
+Maagam   in tamil   and the name is just a colloquial  corruption of it,
+And in Panguni month  , the full moon cames on  either pooram or Uthram,
+Which are called Poorva and Uthara Phalguni   stars and Phaalguni bacame Panguni.
+
+[Source](https://rajathathablog.blogspot.com/2017/08/how-did-tamil-month-names-originate.html)
+
 ### Different sources to consider for updating
 1. [Source1](http://brahminrituals.blogspot.com)
 2. [Source2](http://www.hindupedia.com)
 3. [Source3](https://sanskritdocuments.org/sites/ramya475/ABOUTPRR.html)
 4. [Source4](https://rajathathablog.blogspot.com/)
+
+
+
 
 ## Miscellaneous Information to maintain this document
 
