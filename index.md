@@ -179,6 +179,242 @@ Orukkalum en kanavar ennai vittu pririyadhirukka vendum
 
 (I have offered  you unmelted butter    and One Adai  ,PLeae bless me so that my husband  will live with me forever)
 
+It is a practice in certain homes   to  worship goddess Kamakshi  by calling a priest . Instead  you can also  chant the following Sankalpam and perform the Pooja yourselves
+
+ 
+Mama   deerga    saumanglya   avapthyartham  , mama bhartheu   anyonya  preethi ,
+
+Abhivrudhyartham  , Aviyogartham    Sri Kamakshi poojaam karishye
+
+ 
+
+மம  தீர்க  ஸுமங்கல்ய அவாப்த்யர்த்தம்
+
+மம பர்த்துச்ச அன்யோன்யப்ரீதி
+
+அபிவ்ருத்தியர்த்தம் அவியோகார்த்தம் 
+
+ஸ்ரீ காமாக்ஷி பூஜாம் கரிஷ்யே
+
+ 
+
+ 
+
+Translation
+
+For  getting the status of Sumangali   for a very long time ,
+
+For increase  of mutual love between me and my husband
+
+For never being ever getting parted with him ,
+
+I am doing the worship of  Goddess  Kamakshi.
+
+ 
+
+And chant the  Dhyanam
+
+ 
+
+Ekambara  nadha   dayithaam   kamakshim  ,
+
+BHuvaneswarim  dhyayami  hrudaye,
+
+DEvim vanchithartha  pradhayinum
+
+ 
+
+ஏகாம்பர நாத தயிதாம் காமாக்ஷீம் 
+
+புவனேஸ்வரீம் த்யாயாமி ஹ்ருதயே 
+
+தேவீம் வாஞ்சிதார்த்த ப்ரதாயிநீம்
+
+காமாக்ஷீம் ஆவாஹயாமி.
+
+ 
+
+ 
+
+Translation
+
+I  meditate  on the wife of Elambara Nadha,
+
+Who is the goddess  of the universe in my mind ,
+
+So that  the goddess   fulfill my mind’s desires.
+
+ 
+
+Then chant ashtothara of Kamashi   http://stotrarathna.blogspot.in/2015/06/kamakshi-ashtotharam.html and worship the goddess  by offering her flowers
+It would be great if you can chant the Yamashtakam   chanted by Savithri  to  get back her husband.
+
+Yamashtakam
+(Octet addressed to Yama, the God of death)
+
+Translated by
+P.R.Ramachander
+
+(Here is a prayer Sung by savithri to yama to get back her husband. )
+
+Savithri Uvacha:-
+Savithri said:-
+
+1.Thapasaa Dharma Rajaya , pushkare Bhaskare puraa,
+Dharmasam yam sutham prapa Dharmarajam namamyaham.
+
+In the olden times Sun God got Yamuna and Dharma Raja as children,
+And the Son who is the follower of Dharma , was named as king of dharma.
+
+2.Samathaa sarva bhootheshu yasya sarvasya sakshina,
+Atho yan nama samanam ithi tham pranamamyaham.
+
+He treated every living being as equal and is the witness of everything,
+And thus he was equal to his name and I salute him.
+
+3.Yenaa anthascha krutho , viswe sarveshaam jeevinaam param,
+Karmo anuroopa kalena , tham kruthantham namamyaham.
+
+He made all beings of the world die ,
+At the proper time and I salute him who puts an end.
+
+4.Bbarthi dandam dandachyaa , paapinaam shudhi hethave,
+Namami tham Danda dharam , ya saastha sarva karmanam.
+
+He gave punishment using his scepter to the sinners to make them pure,
+I salute he who holds the scepter, who is the teacher of all duties.
+
+5.Viswe ya kavalayathyeva sarvayuschapi santhatham,
+Atheeva durnirvarya cha tham kaalam pranamamyaham.
+
+Since he was swallowing the world and he always takes away all souls,
+At highly exceptional circumstances and I salute that Kala.
+
+6.Thapaswi Vaishnavo dharmo , samyami vijithendriya,
+Jeevinaam karma phaladham tham Yamam pranamamyaham.
+
+An ascetic following the Vaishnava Dharma, one who has won over his senses,
+And one who awards the results of Karma to beings is Yama and I salute him.
+
+7.Swa athmaramascha sarvagno mithram punyakruthaam bhaveth,
+Paapinam klesadham yasya , puthro mithro namamyaham.
+
+Rejoicing in his own self , one who knows all , one who is a friend of those who do good deeds,
+And one who troubles sinners is the son of Sun God and I salute him.
+
+8.Yajjanma Brahmaano vamse jwalantham Brahma thejasaa,
+Yo dhyayathi Param brahma Brahma vamsam namamyaham.
+
+He took birth in the clan of Brahma and shined with effulgence of Brahmana,
+And he meditates on the divine Brahmam, and I salute the clan of Brahma.
+
+Phala Sruthi
+
+9.Ithyukthwaa saa cha Savithri prananama Yamam Mune,
+Yamasthaam Vishnu Bhajanam karmapakam uvacha ha.
+
+Oh sage after saying this Savithri saluted that Yama,
+And Yama heard her praise of Lord Vishnu due to her ripening of her JKarma.
+
+10.Idham Yamastakam nithyam prathar uthaya padeth,
+Yamath thasya bhayam Nasthi sarva paapath pramuchyathe.
+
+If this octet on Yama is read daily as soon as one gets up in the morning,
+He will have no fear of Yama and would get rid of all his sins.
+
+11.Maha Paapi yathi paden nithyam BHakthyaa cha Narada,
+Yama karothi tham shudham kaya vyuhena nischitham.
+
+Oh Narada, if a great sinner reads it daily with devotion,
+Yama will make him pure from at the time of his soul seperatring from body.
+
+Ithi Sri Brahma Vaivartha Maha purane prakruthi khande Savithri krutha Sri yamashtakam sampoornam.
+
+ 
+
+Lyrics in Tamil is below Sanskrit lyrics.
+
+(अथ यमाष्टकम् ।)
+
+सावित्र्युवाच –
+
+तपसा धर्ममाराध्य पुष्करे भास्करः पुरा ।
+धर्मं सूर्यः सुतं प्राप धर्मराजं नमाम्यहम् ॥ 1॥
+
+समता सर्वभूतेषु यस्य सर्वस्य साक्षिणः ।
+अतो यन्नाम शमनमिति तं प्रणमाम्यहम् ॥ 2॥
+
+येनान्तश्च कृतो विश्वे सर्वेषां जीविनां परम् ।
+कामानुरूपं कालेन तं कृतान्तं नमाम्यहम् ॥ 3॥
+
+बिभर्ति दण्डं दण्डाय पापिनां शुद्धिहेतवे ।
+नमामि तं दण्डधरं यः शास्ता सर्वजीविनाम् ॥ 4॥
+
+विश्वं च कलयत्येव यः सर्वेषु च सन्ततम् ।
+अतीव दुर्निवार्यं च तं कालं प्रणमाम्यहम् ॥ 5॥
+
+तपस्वी ब्रह्मनिष्ठो यः संयमी सञ्जितेन्द्रियः ।
+जीवानां कर्मफलदस्तं यमं प्रणमाम्यहम् ॥ 6॥
+
+स्वात्मारामश्च सर्वज्ञो मित्रं पुण्यकृतां भवेत् ।
+पापिनां क्लेशदो यस्तं पुण्यमित्रं नमाम्यहम् ॥ 7॥
+
+यज्जन्म ब्रह्मणोंऽशेन ज्वलन्तं ब्रह्मतेजसा ।
+यो ध्यायति परं ब्रह्म तमीशं प्रणमाम्यहम् ॥ 8॥
+
+(फलश्रुतिः ।)
+
+इत्युक्त्वा सा च सावित्री प्रणनाम यमं मुने ।
+यमस्तां शक्तिभजनं कर्मपाकमुवाच ह ॥ 9॥
+
+इदं यमाष्टकं नित्यं प्रातरुत्थाय यः पठेत् ।
+यमात्तस्य भयं नास्ति सर्वपापात्प्रमुच्यते ॥ 10॥
+
+महापापी यदि पठेन्नित्यं भक्तिसमन्वितः ।
+यमः करोति संशुद्धं कायव्यूहेन निश्चितम् ॥ 11॥
+
+इति श्रीमद्देवीभागवते महापुराणेऽष्टादशसाहस्र्यां संहितायां
+नवमस्कन्धे यमाष्टकवर्णनं नामेकत्रिशोऽध्यायः ॥
+
+(அத யமாஷ்டகம் ।)
+ஸாவித்ர்யுவாச –
+தபஸா தர்மமாராத்ய புஷ்கரே பாஸ்கர: புரா ।
+தர்மம் ஸூர்ய: ஸுதம் ப்ராப தர்மராஜம் நமாம்யஹம் ॥ 1॥
+
+ஸமதா ஸர்வபூதேஷு யஸ்ய ஸர்வஸ்ய ஸாக்ஷிண: ।
+அதோ யந்நாம ஶமநமிதி தம் ப்ரணமாம்யஹம் ॥ 2॥
+
+யேநாந்தஶ்ச க்ருதோ விஶ்வே ஸர்வேஷாம் ஜீவிநாம் பரம் ।
+காமாநுரூபம் காலேந தம் க்ருதாந்தம் நமாம்யஹம் ॥ 3॥
+
+பிபர்தி தண்டம் தண்டாய பாபிநாம் ஶுத்திஹேதவே ।
+நமாமி தம் தண்டதரம் ய: ஶாஸ்தா ஸர்வஜீவிநாம் ॥ 4॥
+
+விஶ்வம் ச கலயத்யேவ ய: ஸர்வேஷு ச ஸந்ததம் ।
+அதீவ துர்நிவார்யம் ச தம் காலம் ப்ரணமாம்யஹம் ॥ 5॥
+
+தபஸ்வீ ப்ரஹ்மநிஷ்டோ ய: ஸம்யமீ ஸஞ்ஜிதேந்த்ரிய: ।
+ஜீவாநாம் கர்மபலதஸ்தம் யமம் ப்ரணமாம்யஹம் ॥ 6॥
+
+ஸ்வாத்மாராமஶ்ச ஸர்வஜ்ஞோ மித்ரம் புண்யக்ருதாம் பவேத் ।
+பாபிநாம் க்லேஶதோ யஸ்தம் புண்யமித்ரம் நமாம்யஹம் ॥ 7॥
+
+யஜ்ஜந்ம ப்ரஹ்மணோம்ঽஶேந ஜ்வலந்தம் ப்ரஹ்மதேஜஸா ।
+யோ த்யாயதி பரம் ப்ரஹ்ம தமீஶம் ப்ரணமாம்யஹம் ॥ 8॥
+
+(பலஶ்ருதி: ।)
+
+இத்யுக்த்வா ஸா ச ஸாவித்ரீ ப்ரணநாம யமம் முநே ।
+யமஸ்தாம் ஶக்திபஜநம் கர்மபாகமுவாச ஹ ॥ 9॥
+
+இதம் யமாஷ்டகம் நித்யம் ப்ராதருத்தாய ய: படேத் ।
+யமாத்தஸ்ய பயம் நாஸ்தி ஸர்வபாபாத்ப்ரமுச்யதே ॥ 10॥
+
+மஹாபாபீ யதி படேந்நித்யம் பக்திஸமந்வித: ।
+யம: கரோதி ஸம்ஶுத்தம் காயவ்யூஹேந நிஶ்சிதம் ॥ 11॥
+
+இதி ஶ்ரீமத்தேவீபாகவதே மஹாபுராணேঽஷ்டாதஶஸாஹஸ்ர்யாம் ஸம்ஹிதாயாம்
+
 [Source](http://brahminrituals.blogspot.com/2021/03/a-note-on-karadayan-nonbu-on-14-3-2021.html?m=1)
 
 
