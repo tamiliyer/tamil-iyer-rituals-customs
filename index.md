@@ -3,12 +3,30 @@
 
 ## List of functions in a tamil iyer family
 
-1. Baby - Udhaka Shanthi
-2. Boy - Upanayanam
-3. Marriage
-4. Girl - Puberty
-5. Avani Avattam
-6. Thavasam
+1. Pregnant woman - Udhaka Shanthi
+2. Baby birth - Punyavachanam
+3. Boy - Upanayanam
+4. Marriage
+5. Girl - Puberty
+6. Avani Avattam
+7. Thavasam
+
+## Pregnant woman - Udhaka Shanthi
+
+1. Participants in the function - Husband of pregnant woman, parents from both families, sisters/brothers from both families, extended family, friends, elders
+2. Function timings
+
+## Baby birth - Punyavachanam
+
+## Boy - Upanayanam
+
+## Marriage
+
+## Girl - Puberty
+
+## Avani Avattam
+
+## Thavasam
 
 You can use the [editor on GitHub](https://github.com/tamiliyer/tamil-iyer-rituals-customs/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
