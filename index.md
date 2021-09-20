@@ -1,4 +1,14 @@
-## Welcome to GitHub Pages
+## Welcome to Tamil Iyer Rituals & Customs
+
+
+## List of functions in a tamil iyer family
+
+1. Baby - Udhaka Shanthi
+2. Boy - Upanayanam
+3. Marriage
+4. Girl - Puberty
+5. Avani Avattam
+6. Thavasam
 
 You can use the [editor on GitHub](https://github.com/tamiliyer/tamil-iyer-rituals-customs/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
