@@ -7,11 +7,26 @@
 2. Baby birth - Punyavachanam
 3. Boy - Upanayanam
 4. Marriage
-5. Girl - Puberty
-6. Avani Avattam
-7. Thavasam
-8. Griha Pravesham
-9. Karadayan nonbu
+    1. NICHAYATHARTHAM
+    2. PALIGAI
+    3. JAANAVASAM
+    4. VRATHAM
+    5. KASHI YATRA
+    6. MAALAI MAATRAL
+    7. OONJAL 
+    8. PIDI SUTHAL
+    9. KANNIKADHANAM  
+    10. MANGALYADHARANAM
+    11. PAANIGRAHANAM
+    12. SAPTAPADI 
+    13. AMMI MIDITHAL 
+    14. ARUNDHATI NAKSHATRAM
+    15. NALANGU
+6. Girl - Puberty
+7. Avani Avattam
+8. Thavasam
+9. Griha Pravesham
+10. Karadayan nonbu
 
 
 # Writing Template for each function/ ritual / custom
