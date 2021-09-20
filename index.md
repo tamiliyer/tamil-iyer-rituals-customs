@@ -12,6 +12,16 @@
 7. Thavasam
 8. Griha Pravesham
 
+
+# Writing Template for each function/ ritual / custom
+
+## Name of the function/ ritual / custom
+
+1. Significance of the function / ritual / custom
+2. Expected Participants in the function
+3. Timings of the function
+4. Expected duties from the participants in the function
+
 ## Pregnant woman - Udhaka Shanthi
 
 1. Participants in the function - Husband of pregnant woman, parents from both families, sisters/brothers from both families, extended family, friends, elders
