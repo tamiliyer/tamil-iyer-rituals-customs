@@ -419,6 +419,11 @@ Lyrics in Tamil is below Sanskrit lyrics.
 
 
 
+### Different sources to consider for updating
+1. [Source1](http://brahminrituals.blogspot.com)
+2. [Source2](http://www.hindupedia.com)
+3. [Source3](https://sanskritdocuments.org/sites/ramya475/ABOUTPRR.html)
+4. [Source4](https://rajathathablog.blogspot.com/)
 
 ## Miscellaneous Information to maintain this document
 
